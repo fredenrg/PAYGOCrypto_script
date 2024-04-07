@@ -1,1 +1,1 @@
-Freely availble code for the abandoned PAYGOCrypto project, you're welcome
+Freely availble code for the stolen (ROYcode360) PAYGOCrypto project, you're welcome
